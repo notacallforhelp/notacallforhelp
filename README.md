@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hudashamirul@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1cUx9pTIxz3NvTs4PJ8-kk82Ru2VSIPqYsXt--_hURx4/edit)
+- 📄 Know about my experiences [Resume]([https://docs.google.com/document/d/1cUx9pTIxz3NvTs4PJ8-kk82Ru2VSIPqYsXt--_hURx4/edit](https://drive.google.com/file/d/1y44Yj4nYskKM7ZDzDYTGtkBh_v90JY9O/view))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
